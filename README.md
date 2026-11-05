@@ -53,8 +53,7 @@ Join our Discord community and open a support ticket.
 
 ---
 
-\<p align="center">
-&#x20; \*\*VELOCITY IS BACK.\*\*
+\*\*VELOCITY IS BACK.\*\*
 
 *Better updates. Better experience. Every two weeks.* ⚡
 
